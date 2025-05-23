@@ -11,7 +11,6 @@
 
 - ⚡ Fun fact **When I'm not conquering virtual worlds, I'm crafting prayer wheels, exploring new places, and expanding my network—both online and offline!**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
